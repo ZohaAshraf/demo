@@ -1,2 +1,1 @@
-mmmmmghhh
-z
+editing my freadme 
