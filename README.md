@@ -1,4 +1,1 @@
-mmmmmghhh
-z
-xnm njjkd 
-update1
+editing my freadme 
